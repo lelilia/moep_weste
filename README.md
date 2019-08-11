@@ -5,7 +5,7 @@ Für eine Maker(\*innen) Challenge habe ich eine Möp-Weste gebaut.
 Was genau soll das sein?
 
 # Kurzer Video-Schnippsel
-https://twitter.com/l_e_d_li/status/1040373732840284166?s=20
+https://twitter.com/l_e_d_li/status/1040373732840284166
 
 # Hintergrund
 Ich mag es nicht, an der Schulter angefasst zu werden, was gerade auf Veranstaltungen oft ein echtes Problem darstellt. 
